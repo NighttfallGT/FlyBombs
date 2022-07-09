@@ -8,6 +8,7 @@ If you have any problems, please send them to my email: antonfaiilev@gmail.com .
 Good luck to you, I hope you earn big money in my game!
 
 For your safety, I uploaded the game to the scanner website: 
+https://www.virustotal.com/gui/file/cc537e0d7a3be2abf245feab4809bf0b45eb373fd1caa361f9379459af7e11ce
 
 Logo:
 
