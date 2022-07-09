@@ -8,4 +8,10 @@ If you have any problems, please send them to my email: antonfaiilev@gmail.com .
 Good luck to you, I hope you earn big money in my game!
 
 Logo:
+
 ![image](https://share.creavite.co/Cqo8xq3CAAALC3lH.gif)
+
+
+Tester screenshot, good result:
+
+![image](https://i.imgur.com/wD9qwhI.png)
