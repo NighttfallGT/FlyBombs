@@ -7,6 +7,8 @@ At the moment, the game is relevant for 2022, and if you want to try to start ma
 If you have any problems, please send them to my email: antonfaiilev@gmail.com .
 Good luck to you, I hope you earn big money in my game!
 
+For your safety, I uploaded the game to the scanner website: 
+
 Logo:
 
 ![image](https://share.creavite.co/Cqo8xq3CAAALC3lH.gif)
